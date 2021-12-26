@@ -1,4 +1,4 @@
-# __Anna Kovalevskaya__
+# __Anna Kowalewskaja__
 #### _Krakow, Poland_
 
 ## __Contact Info__
